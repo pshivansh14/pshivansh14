@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **at GLA University**
 
-- 📫 How to reach me **shivansh.pathak_cs.aiml21@gla.ac.in**
+- 📫 How to reach me **pshivansh639@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
